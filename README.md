@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning AI is applied to use
 - 💞️ I’m looking to collaborate on some studios and film and televiision companies with common progress
 - 📫 Reach me please visit 2692963779@qq.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: Xyris
+- ⚡ Fun fact: I am a Chinese college student in 2005
 
 <!---
 Xyangshaun/Xyangshaun is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
