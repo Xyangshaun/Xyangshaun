@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Xyangshaun
-- 👀 I’m interested in Ai workfiow and software development
+- 👀 I’m interested in AI workfiow and software development
 - 🌱 I’m currently learning AI is applied to use
 - 💞️ I’m looking to collaborate on some studios and film and televiision companies with common progress
-- 📫 How to reach me please visit 2692963779@qq.com
+- 📫 Reach me please visit 2692963779@qq.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
